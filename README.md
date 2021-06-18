@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with creating sparks in my eyes in developer world 
 - 💬 Ask me about my interest or maybe make friends
 - 📫 How to reach me: sufiadam01@gmail.com
-- 😄 Pronouns: ahdham
+- 😄 Pronouns: sunlight
 - ⚡ Fun fact: I can almost speak 3 language
 
 
